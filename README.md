@@ -1,0 +1,2 @@
+# PAGES
+Pages açıklama
